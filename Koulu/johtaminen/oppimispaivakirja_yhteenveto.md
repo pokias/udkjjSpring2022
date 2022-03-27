@@ -19,10 +19,9 @@ Tässä tehtävässä käytiin johtamisen kannalta miten voidaan autta työnteki
 
 Mutta taas sain kuulla muilta opiskelijoilta että tämä on sote-maailmassa vielä kohtuu alkutekijöissä. Tämä ulkopuolinen asia ehkä myös johti siihen että oli vaikeampaa kuin muilla kehittää toimintaa. 
 
-
 ## Ennakkotehtävä 3 osio
 
-Päädyimme aiheenamme esimiehen ohjepakkiin, kuulema tämäkin on vielä uusi idea omalla osallaan. 
+Päädyimme aiheenamme esimiehen ohjepakkiin, kuulema tämäkin on vielä uusi idea omalla osallaan sote-maailmassa.. 
 
 Tehtävän ohjeiden kehittäminen, muistojen vahvistaminen ja oppimisen pelillistäminen oli hauskaa ja siinä sai kokemusta miten kannattaa kyseiset materiaalit kannattaa luoda. Toki koska en ole esimies puolelle niin vahvasti keskittynyt niin varmasti jäi paljon nyanssia pois mitä ryhmässä käytiin läpi. Oli kuitenkin kiva huomata kuinka paljon opiskelijat halusivat ja näkivät erillaisia tapoja kehittää työntekijän oppimista tässä pienessä ajassa mitä työntekijälle annetaan.
 
