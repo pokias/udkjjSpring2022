@@ -21,5 +21,6 @@ Tällä osiolla oli mukavan paljon opetusvideomateriaalia josta haluan antaa plu
 
 Tämä osio tuntui itselleni hassulta. Tässä jouduttiin vetämään niin isolla kauhalla yhteen asioita joita ei kauhean tarkalla tavalla voitu esitellä opiskelijalle. Osiossa on paljon materiaalia josta kaikkea en ole kerennyt käydä tarkkaan läpi (Katson sinua artikkeli-kansio) mutta jokainen tähän mennessä katsomani osio on ollut erittäin mielenkiintoista.
 
+### Lopuksi
 
 Haluan suuresti kiittää ryhmääni, he kirjoittivat todella paljon tekstiä materiaalista johon itse en päässyt niin syvästi sisälle kuin olisin toivonut.
