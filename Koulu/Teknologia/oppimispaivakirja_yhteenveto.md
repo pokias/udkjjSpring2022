@@ -1,7 +1,7 @@
 # Terveys- ja hyvinvointiteknologia ja palvelunohjaus digitaalisessa ympäristössä
 (AKA SENSORIT/RAUTA KURSSI)
 
-Kurssin yhteenve<to oppimispäiväkirjamuodossa.
+Kurssin yhteenveto oppimispäiväkirjamuodossa.
 
 Kurssissa käytiin kolme pääaihetta läpi joita sitten pohdittiin lopussa yhden massiivisen raportin turvin. Hieman jäi tälläinen kolmen ruokalajin kokonaisuus jotka löyhästi liittyvät yhteen mutta makujen harmonia ei suoraan huuda pitkään mietittyä ja harjoiteltua kokonaisuutta. Toki jokainen näistä osioista olisi yksinään ollut liian pieni kurssiksi ja jokainen näistä kannatti käydä läpi. Toivottavasti tämä kurssi jatkaa eloa ja kokonaisuutta saadaan yhtenäisemmäksi.
 
